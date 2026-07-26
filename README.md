@@ -29,9 +29,9 @@
  ‎ ‎ ‎ <p align="center" dir="auto"> 
  ══════ㅤ۪════ ⋆★⋆ ══════════
  ‎ ‎ ‎ <p align="center" dir="auto"> 
- ‎ ‎ ‎   ‎ ‎ ‎ rileyㅤ‎ 𐚁ㅤ۪ ㅤ݂ ‎ ‎ ‎ ‎ ‎ 19‎ ‎ ‎ ‎ ‎  ᡣ𐭩   ⋆ ◞
+ ‎ ‎ ‎   ‎ ‎ ‎ rileyㅤ‎ 𐚁ㅤ۪ ㅤ݂ ‎ ‎ ‎ ‎ ‎ 19‎ ‎ ‎ ‎ ‎   ⋆ ◞
  ‎ ‎ ‎ <p align="center" dir="auto"> 
- ‎ ‎ ‎ ‎ any     pronouns⠀ׂㅤ.  ͡꒱
+ ‎ ‎ ‎ ‎ any     pronouns⠀ׂㅤ.  
  ‎ ‎ ‎ <p align="center" dir="auto"> 
  ‎ ‎ ‎ ‎ ‎ 
 <p align="center" dir="auto">
